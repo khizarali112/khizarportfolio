@@ -1,2 +1,0 @@
-# khizarportfolio
-info
